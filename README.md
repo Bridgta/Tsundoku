@@ -22,3 +22,4 @@ Tsundoku hopes to help the reader approach their ever-growing book case in a pra
 
 ![five-screen-accentColor](https://user-images.githubusercontent.com/18372801/163683155-5c553b39-de04-44d7-b18c-ffeea79f7263.png)
 
+[Read Tsundoku's Privacy Policy](https://www.termsfeed.com/live/a0fdb2b6-eaaf-4061-95e6-d5964cf8fb61)
